@@ -1,4 +1,4 @@
-# Hi, I'm Abdulrahman 👋
+# Hi, I'm Amer 👋
 
 ## AI Automation & AI Agents Developer
 
